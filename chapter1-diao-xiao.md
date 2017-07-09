@@ -6,3 +6,9 @@
 
 ![](/images/Bubobubo)
 
+The Eurasian Eagle owl
+
+_\(Bubo bubo\)_
+
+is the heaviest owl in the world. Females of this species can reach greater than or equal to 9.25 pounds, which is twice the weight of an adult female snowy owl, the heaviest owl in North America. The feathers on the upper portion of the owl are brown to black and yellowish brown. The back and sides of the neck exhibit a striping pattern, while the head and forehead have heavy freckling. The plumage on the back has dark patches. The outer portion of the facial disc appears framed with black-brown spotting. The tail is dark with blackish brown barring. The assemblage of the feathers allows this owl to have noiseless flight
+
